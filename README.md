@@ -1,6 +1,6 @@
 # Motivation
-to achieve gole
+to achieve gole.
 # sucess
-to achieve gole
+to achieve gole.
 # virat
-go to achieve sucess
+go to achieve sucess.
